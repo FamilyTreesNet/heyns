@@ -72,13 +72,9 @@ You referred to the trucks of many colors with all the "chicken" lights on the r
 There is no upper age limit for drivers.  Glenn R. Myers of Kenneth City, FL started driving in 1935, and he is the senior, full time driver for Wal-Mart today.  He was a greeter for Wal-Mart until they found out he still had a CDL License.  Most old drivers fail the vision or hearing tests.  Quite a few should be on insulin for their diabetes but they risk their own health to maintain their CDL License.  We take a physical exam every two years, and half of all drivers are randomly tested for drug abuse each year.  Larry.
 
 
-
-
-<img src="img/keyline.jpg" style="float:left"> 
-<div style="clear:both"></div>
-<br>
-
 <h2>Fallen Flags - Old Trucking Companies of the Past</h2>
+
+<img src="img/keyline.jpg" class="floatRight" style="margin-bottom:25px">  
 
 Darling Freight, Inc. (The Key Line in Transportation) was owned by Dallas Darling, one of the trucking industry's pioneers. Darling was acquainted with Matthijs Heyns, also a businessman in Grand Rapids. In 1940, when both the Darling and Heyns families were vacationing in Florida, four men took Darling's cabin cruiser to Cuba. There was a storm on the return trip, and only Matt Heyns was well enough to operate the boat.
 
