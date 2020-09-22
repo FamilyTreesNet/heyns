@@ -15,6 +15,31 @@
 We stumbled onto a Louie Anderson stand-up routine on CW network last night.  It was titled "Big Underwear".  Louie is a master of deadpan.  I first saw him on Johnny Carson 25 years ago.  He seems very old, but can still up there for an hour, with perfect timing.  
 -->
 
+## Visiting Uncle Dan Cooper's farm home
+
+Dad, I posted this photo in one of my albums at the Automotive Interest Group on Classmates.com. Do you remember any details about whose car it was, and where the photo was taken? I think we were having Thanksgiving at Uncle Dan Coopers. Is that right? I also entered your story about driving the Federal stake truck at age 13 in answer to a question about "How old were you when you drove for the first time?" Larry.  
+
+Larry, you are right about the picture taken at Uncle Dan Cooper's farm home. I think it was Uncle Neal Schuur's car. From the shape of the headlights I think it was a Packard. I remember that the road to the farmhouse to the county road was a single track unplowed road of about 1/4 mile and it was tricky to drive without getting stuck in all the snow. But the dinner was great and worth the trip in spite of the weather.  
+
+At that time Grandpa VDB was driving an Oldsmobile. Later on he (and my Dad) drove low-cost models of the Cadillac (Fleetwoods?). - Dad (Bill)  
+
+<img src="img/larry-packard.jpg"><br>
+<caption>Larry with Uncle Neal Schuur's Packard</caption><br><br>
+
+## Grand Rapids boyhood adventures
+
+There were a few adventures for city boys in the suburbs of Grand Rapids, MI in the early 1950s. As eight-year-olds, we could ride our bikes to Feenstra&rsquo;s farm, sneak into their barn and have BB gun fights. Now, adults have paint-ball war, but we were first. Occasionally, we would hang around the police speed trap and talk to the officer. Speed traps in those days used two hoses stretched across the road. A rainy day adventure might involve riding the city bus around the entire route. Do you want to go downtown and see the tall buildings? The tallest building in Grand Rapids was the thirteen-story McKay Tower, where my dad had his office. At the end of the line where Ralph Cramdon ate his lunch, we transferred to another bus. During summer vacation, we could take our sleeping bags and spend the night on the school grounds.  
+
+Other adventures involved Plaster Creek. When the creek was flooded, we put my dad&rsquo;s small fiberglass boat into the creek, but the rushing water stuck the bow between the trunks of a forked tree. The stern bent around, causing a crack in the bottom of the boat. We did this during noon-hour from school. Sears repaired the boat under the warranty, no questions asked. Those steel tubs for hand mixing concrete or plaster made good flat-bottom boats for poling in swamps. Construction projects also provided materials for building forts in the woods.  
+
+<img src="../ethan/img/ethan-in-a-pipe.jpg" style="width:400px"><br>
+Larry's grandson Ethan explores a tunnel at the new dam construction in Anderson, South Carolina in April, 2010.<br><br>
+
+When the creek was at a normal level, we could get our bikes into the storm sewer outlet that was six feet in diameter. Then, with flashlights, we could ride and see the city from a different perspective. If you try this at home, do it on a sunny day. Other boys would follow our progress at street level, and inform us of our location when we talked at a storm sewer grate. As the sewer narrowed, we had to leave the bikes and walk. The brave Dennis Cortman crawled into the smallest concrete pipe and wrote his name. Years later, Dennis owned a bright yellow 1949 Mercury convertible. He was a legend in his time.  
+
+Within a few years, our adventures tapered off as we took part-time jobs, and got interested in girls. It is a wonder we survived it all.
+
+
 ## Larry and William build a go-cart
 
 Using plans from Popular Mechanics, William Heyns and 
@@ -92,30 +117,6 @@ In 1973, Larry was considering leasing his new International truck tractor to Or
 In April 1978, the Darling family sold Key Line's authority to Roadway for $9 million. The money was invested in a Florida airport, but they tried to operate some duplicate steel hauling authority without success. Due to Teamsters Union rules, Key Line drivers were offered jobs at Roadway. Their seniority was dovetailed in. One Key Line driver became second driver at Roadway's Toledo terminal because he could not dovetail into first position even though he had the most seniority. Larry preferred to continue as an owner-operator and to live in Michigan. With assistance from Key Line, many drivers hired on with R-W delivered his last Key Line load in Detroit on a Monday morning, changed the signs on the truck, and pulled an R-W load Monday night. Service System of Taylor, Michigan who took over the lease of Key Line's trailers.  
 
 Before Key Line, I drove for Chippewa Motor Freight. Started as the only employee in Ottawa, IL, and stayed after they opened a terminal. Chippewa auctioned their authority and equipment, claiming that the ICC would not grant rate relief in spite of Teamster negotiated wage gains. I thought this happened in 1978, but the internet says 1980. Anyway, I was out of there in 1973.  
-
-## Larry and Bill talk about a Packard
-
-Dad, I posted this photo in one of my albums at the Automotive Interest Group on Classmates.com. Do you remember any details about whose car it was, and where the photo was taken? I think we were having Thanksgiving at Uncle Dan Coopers. Is that right? I also entered your story about driving the Federal stake truck at age 13 in answer to a question about "How old were you when you drove for the first time?" Larry.  
-
-Larry, you are right about the picture taken at Uncle Dan Cooper's farm home. I think it was Uncle Neal Schuur's car. From the shape of the headlights I think it was a Packard. I remember that the road to the farmhouse to the county road was a single track unplowed road of about 1/4 mile and it was tricky to drive without getting stuck in all the snow. But the dinner was great and worth the trip in spite of the weather.  
-
-At that time Grandpa VDB was driving an Oldsmobile. Later on he (and my Dad) drove low-cost models of the Cadillac (Fleetwoods?). - Dad (Bill)  
-
-<img src="img/larry-packard.jpg"><br>
-<caption>Larry with Uncle Neal Schuur's Packard</caption><br><br>
-
-## Grand Rapids boyhood adventures
-
-There were a few adventures for city boys in the suburbs of Grand Rapids, MI in the early 1950s. As eight-year-olds, we could ride our bikes to Feenstra&rsquo;s farm, sneak into their barn and have BB gun fights. Now, adults have paint-ball war, but we were first. Occasionally, we would hang around the police speed trap and talk to the officer. Speed traps in those days used two hoses stretched across the road. A rainy day adventure might involve riding the city bus around the entire route. Do you want to go downtown and see the tall buildings? The tallest building in Grand Rapids was the thirteen-story McKay Tower, where my dad had his office. At the end of the line where Ralph Cramdon ate his lunch, we transferred to another bus. During summer vacation, we could take our sleeping bags and spend the night on the school grounds.  
-
-Other adventures involved Plaster Creek. When the creek was flooded, we put my dad&rsquo;s small fiberglass boat into the creek, but the rushing water stuck the bow between the trunks of a forked tree. The stern bent around, causing a crack in the bottom of the boat. We did this during noon-hour from school. Sears repaired the boat under the warranty, no questions asked. Those steel tubs for hand mixing concrete or plaster made good flat-bottom boats for poling in swamps. Construction projects also provided materials for building forts in the woods.  
-
-<img src="../ethan/img/ethan-in-a-pipe.jpg" style="width:400px"><br>
-Larry's grandson Ethan explores a tunnel at the new dam construction in Anderson, South Carolina in April, 2010.<br><br>
-
-When the creek was at a normal level, we could get our bikes into the storm sewer outlet that was six feet in diameter. Then, with flashlights, we could ride and see the city from a different perspective. If you try this at home, do it on a sunny day. Other boys would follow our progress at street level, and inform us of our location when we talked at a storm sewer grate. As the sewer narrowed, we had to leave the bikes and walk. The brave Dennis Cortman crawled into the smallest concrete pipe and wrote his name. Years later, Dennis owned a bright yellow 1949 Mercury convertible. He was a legend in his time.  
-
-Within a few years, our adventures tapered off as we took part-time jobs, and got interested in girls. It is a wonder we survived it all.
 
 ## A sand dune runs through it
 
