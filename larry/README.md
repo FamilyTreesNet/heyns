@@ -128,6 +128,10 @@ Referring to the comments of riders at today's Saugatuck Dune Ride, a lot has ch
 
 We had to grease the dune trucks every morning. (I may have beat out other applicants for the job because of previous experience as a mechanic’s helper at Direct Transit Lines, Grand Rapids). The trails had to be graded wherever "chatter" bumps developed. Jousma would drag an I-beam over the trails with a 300 horsepower Hough front-end loader. Many nights I fell asleep in the drivers' cabin by Goshorn Lake to the sound of that loader "floating" the trails way off in the dunes. It took long hours and many gallons of gasoline to prepare for the next day's "thrill-crazy" tourists.  
 
+## Coloma Years
+
+Larry drove for [Dean the Beer Man](https://www.davenportfamily.com/obituary/Phillip-Sanders) for 13 1/2 years.  
+
 
 To the top of our tree: [The Old Farmhouse of Heine](../../heine/)  
 
