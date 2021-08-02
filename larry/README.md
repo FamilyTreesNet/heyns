@@ -132,6 +132,10 @@ We had to grease the dune trucks every morning. (I may have beat out other appli
 
 Larry drove for [Dean the Beer Man](https://www.davenportfamily.com/obituary/Phillip-Sanders) for 13 1/2 years.  
 
+## Plainwell Years
+
+Aug 2021 - Maynard Failing's wife, Joyce, phoned to say that my long-time friend Maynard had two strokes and is not expected to survive.  He is 86.  We met in 1973 as owner-operators at Key Line.  Maynard had a career as a prison cook as well as a farmer and trucker.  He was a "horse-wisperer" and took camping trips with his covered wagons and draft horses.  Mary and I visited them whenever we went to Frankenmuth.  They planned to visit us the next time they went to Shipsewanna. 
+
 
 To the top of our tree: [The Old Farmhouse of Heine](../../heine/)  
 
