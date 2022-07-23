@@ -39,6 +39,7 @@ When the creek was at a normal level, we could get our bikes into the storm sewe
 
 Within a few years, our adventures tapered off as we took part-time jobs, and got interested in girls. It is a wonder we survived it all.
 
+<img src="img/larry-heyns-age-8.jpg">
 
 ## Larry and William build a go-cart
 
@@ -60,6 +61,10 @@ judge, and agreed to dismantle the go-cart.  It was sold to Johnny VanBelois
 
 <img src="img/dragoo.gif"><br>
 Marcia behind the wheel of the dragoo - a Lincoln V-12 flathead.<br><br>
+
+<br>
+
+<img src="img/larry-and-dad-william.jpg">
 
 ## Looking out the kitchen window
 
