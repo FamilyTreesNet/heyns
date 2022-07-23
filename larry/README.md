@@ -123,7 +123,7 @@ In April 1978, the Darling family sold Key Line's authority to Roadway for $9 mi
 
 Before Key Line, I drove for Chippewa Motor Freight. Started as the only employee in Ottawa, IL, and stayed after they opened a terminal. Chippewa auctioned their authority and equipment, claiming that the ICC would not grant rate relief in spite of Teamster negotiated wage gains. I thought this happened in 1978, but the internet says 1980. Anyway, I was out of there in 1973.  
 
-## A sand dune runs through it
+## Sand Dunes Run Through It
 
 Our love of sand dunes extended beyond Michigan. Ron Jousma and I first saw Great Sand Dunes National Monument at Alamosa, CO while helping a woman move to Colorado Springs in 1962. (She would study an Indian language there before doing missionary work on a reservation). In January 1964, we returned to Alamosa in a four-wheel drive pickup with flotation tires. Vehicles are prohibited in the Monument Dunes because their tracks mare the natural beauty. However, we convinced the Director of the opportunity for him to take photos. We felt that our pickup was the first vehicle to leave tracks there since the covered wagons. Eventually, Jousma owned a twenty-mile wilderness tour based at the edge of the Monument.  
 
@@ -133,16 +133,16 @@ Referring to the comments of riders at today's Saugatuck Dune Ride, a lot has ch
 
 We had to grease the dune trucks every morning. (I may have beat out other applicants for the job because of previous experience as a mechanic’s helper at Direct Transit Lines, Grand Rapids). The trails had to be graded wherever "chatter" bumps developed. Jousma would drag an I-beam over the trails with a 300 horsepower Hough front-end loader. Many nights I fell asleep in the drivers' cabin by Goshorn Lake to the sound of that loader "floating" the trails way off in the dunes. It took long hours and many gallons of gasoline to prepare for the next day's "thrill-crazy" tourists.  
 
-## Coloma Years
+## Coloma, Michigan
 
+Larry and Darlene lived in Coloma, Michigan. Loren visited in the summers.  
 Larry drove for [Dean the Beer Man](https://www.davenportfamily.com/obituary/Phillip-Sanders) for 13 1/2 years.  
 
-## Plainwell Years
+## Plainwell, Michigan
 
-Aug 2021 - Maynard Failing's wife, Joyce, phoned to say that my long-time friend Maynard had two strokes and is not expected to survive.  He is 86.  We met in 1973 as owner-operators at Key Line.  Maynard had a career as a prison cook as well as a farmer and trucker.  He was a "horse-wisperer" and took camping trips with his covered wagons and draft horses.  Mary and I visited them whenever we went to Frankenmuth.  They planned to visit us the next time they went to Shipsewanna.  
-
-<img src="img/maynard.jpg" class="floatRight" style="margin-bottom:25px; width: 100%; max-width:500px">Maynard and I met as owner-operators at Key Line Freight of Grand Rapids in 1973. Maynard was well known for his sense of humor and stories involving farmers and truckeers. He would ask a waitress, "Do you want to go to the big city and see the tall buildings? (chuckling to himself). His Natiional Guard unit served in Detroit during the race riots of the 1960s. While laying over at a commercial hotel in St. Louis, MO, Maynard and I walked to the ball park to watch professional baseball. When Key Line laid us off during the recesssion of 1974-75, we both leased our tractors to Refrigerated Transport of Forest Park, GA. Key Line required Maynard to buy three more tractors and come back to Key Line as a fleet owner. In recent years, we have shared a meal with Maynard and Joyce at the Rusty Nail Restaurant in Carson City whenever we made our annual trip to Frankenmuth, MI for Christmas decorations. Maynard had been leased to Central Transport before I met him. Owned by Matty Maroun (owner of the Ambassador Bridge), Central Transport is the butt of jokes among truckers for their cheapskate operation. Maynard had a flat tire on a trailer. Instead of calling for repairs, he dragged the trailer into the Benton Harbor terminal, ruining the tire. Central mechanics thanked Maynard for saving them a service call.  
-
+<img src="img/mary/0S1A5304.jpeg" style="width: 100%; max-width:500px">
+<img src="img/mary/MANU7022.jpeg" style="width: 100%; max-width:500px">
+Larry and Mary, 2022<br><br>
 
 To the top of our tree: [The Old Farmhouse of Heine](../../heine/)  
 
