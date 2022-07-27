@@ -133,6 +133,9 @@ Referring to the comments of riders at today's Saugatuck Dune Ride, a lot has ch
 
 We had to grease the dune trucks every morning. (I may have beat out other applicants for the job because of previous experience as a mechanic’s helper at Direct Transit Lines, Grand Rapids). The trails had to be graded wherever "chatter" bumps developed. Jousma would drag an I-beam over the trails with a 300 horsepower Hough front-end loader. Many nights I fell asleep in the drivers' cabin by Goshorn Lake to the sound of that loader "floating" the trails way off in the dunes. It took long hours and many gallons of gasoline to prepare for the next day's "thrill-crazy" tourists.  
 
+<img src="img/red-jag.jpg" style="width: 100%; max-width:500px">  
+Larry painted his white jag red in the 60's. This painting is from a gallery in Petosky, summer 2021.  
+
 ## Coloma, Michigan
 
 Larry and Darlene lived in Coloma, Michigan. Loren visited in the summers.  
