@@ -85,7 +85,7 @@ with my name on the door.
 
 <img src=img/fuel-price.gif><br><br>
 
-## Asleep at the wheel
+## Circadian Rhythm
 
 Cheryl, of course I think most single truck accidents are fatigue related, followed by weather related accidents.  The recent Federal attempts to revise the Hours Of Service Regulations of the 1930's seemed to be written by a committee of fools who never drove a truck.  And if passed, their proposals would have gutted the productivity and spontaneity of the trucking industry.  Unfortunately, we cannot trust drivers or dispatchers to discipline themselves because of the profit motive.  Yet, responsibility for wakefulness needs to be returned to the drivers through flexible schedules so that a driver can deal with his or her own circadian rhythm.  Now we know that fatigue is affected by how long we sleep, not how long we work.  The log book regulations do more to mess up a driver's natural sleep pattern.  I always got my rest, but not exactly when the log book said so.  
 
@@ -122,6 +122,14 @@ In 1973, Larry was considering leasing his new International truck tractor to Or
 In April 1978, the Darling family sold Key Line's authority to Roadway for $9 million. The money was invested in a Florida airport, but they tried to operate some duplicate steel hauling authority without success. Due to Teamsters Union rules, Key Line drivers were offered jobs at Roadway. Their seniority was dovetailed in. One Key Line driver became second driver at Roadway's Toledo terminal because he could not dovetail into first position even though he had the most seniority. Larry preferred to continue as an owner-operator and to live in Michigan. With assistance from Key Line, many drivers hired on with R-W delivered his last Key Line load in Detroit on a Monday morning, changed the signs on the truck, and pulled an R-W load Monday night. Service System of Taylor, Michigan who took over the lease of Key Line's trailers.  
 
 Before Key Line, I drove for Chippewa Motor Freight. Started as the only employee in Ottawa, IL, and stayed after they opened a terminal. Chippewa auctioned their authority and equipment, claiming that the ICC would not grant rate relief in spite of Teamster negotiated wage gains. I thought this happened in 1978, but the internet says 1980. Anyway, I was out of there in 1973.  
+
+## Two Sticks
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SZy61CxNBBY?start=11" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe><br>
+
+At Chippewa Motor Freight (1969-1973), I was hired to drive a new double trailer rig.  However, occasionally they had a heavy load in a single trailer that required a tandem axle tractor  Then, I drove one of their old B-model Macks with two sticks exactly like the one in the video.  The rule of thumb with two sticks is: the transmission to be up shifted is shifted first, the transmission to be down shifted is then shifted.  Experienced drivers can shift both transmissions simultaneously by looping one arm through the steering wheel.  I got a warning ticket for not maintaining minimum speed on the interstate in a  cross wind with that old Mack.  That was the last time Chippewa sent a B-model out of Chicago.
+
+<img src="img/boy-who-wanted-to-become-a-trucker.jpg" style="width: 100%; max-width:400px">
 
 ## Sand Dunes Run Through It
 
