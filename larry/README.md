@@ -57,14 +57,18 @@ and driving an unlicensed motor vehicle.  Larry and his dad appeared before a
 judge, and agreed to dismantle the go-cart.  It was sold to Johnny VanBelois.
 
 <img src="img/larry-go-cart.gif"><br>
-<br><br><br>
-
-<img src="img/dragoo.gif"><br>
-Marcia behind the wheel of the dragoo - a Lincoln V-12 flathead.<br><br>
-
 <br>
 
+<img src="img/dragoo.gif">
+Marcia behind the wheel of the dragoo - a Lincoln V-12 flathead.<br>
+
 <img src="img/larry-and-dad-william.jpg">
+Larry and his dad William (Bill) Heyns<br>
+
+<img src="img/red-jag.jpg" style="width: 100%; max-width:500px">  
+Larry painted his white jag red in the 60's. This painting is from a gallery in Petosky, summer 2021.  
+
+
 
 ## Looking out the kitchen window
 
@@ -142,7 +146,7 @@ Our love of sand dunes extended beyond Michigan. Ron Jousma and I first saw Grea
 
 Leaving Alamosa, we explored Coral Pink Sand Dunes in Utah and met with the Park Commission in Salt Lake City to propose a dune ride there. Then we planned to explore dunes at Coos Bay, OR, and in California, but my Uncle Sam interrupted our trip with an invitation to take a pre-induction physical.  
 
-Referring to the comments of riders at today's Saugatuck Dune Ride, a lot has changed since the 1960's. The ride is now open on Sundays. The dune area is now covered with dune grass except for the trails. There is no fast "thrill ride", due in part to the cost of insurance. We had "airplane hill", straight pipe exhaust, etc. At least they have maintained a sense of humor with the comedy road signs, mannequin legs sticking out of the sand, and driver quips. I remember setting those signs in concrete so trespassers could not steal them.  
+Referring to the comments of riders at today's [Saugatuck Dune Ride](https://www.saugatuckduneride.com/history.html), a lot has changed since the 1960's. The ride is now open on Sundays. The dune area is now covered with dune grass except for the trails. There is no fast "thrill ride", due in part to the cost of insurance. We had "airplane hill", straight pipe exhaust, etc. At least they have maintained a sense of humor with the comedy road signs, mannequin legs sticking out of the sand, and driver quips. I remember setting those signs in concrete so trespassers could not steal them.  
 
 Ron was building the floor and seats on the new Ford chassis when I arrived in the spring of 1962 to apply for the job.  That was the first time I saw anyone weld with coat hanger.  I worked for Ron and his wife Marcia for two summers and also went to Colorado with him twice.
 
@@ -153,10 +157,6 @@ I drove for Ron and Marcia the summer between Hope and grad school.  Ron and I b
 Ron bought a cabin outside of Great Sand Dunes National Monument (now a national park).  While stationed in Colorado Springs, Vivian and I drove two of Ron's friends to the cabin.  They were probably Gene Lubbers and Lee "Leaksy" Klein who may have been the chassis driver, it could have been another of Ron's friends.  Lee sometimes drove thrill ride on busy holidays.  In the about 1983, I was delivering hot metal to a magnesium wheel factory when I heard "Lee Kleen come to the office" on the public address system.  It was the same guy, a metals engineer.  
 
 Ron and his second wife Donna ofter visited Darlene and I at Coloma.  They built and operated a rental storage at Pueblo West, CO.  Ron had quintple bypass at age 60 and died of heart failure at age 70.
-
-<img src="img/red-jag.jpg" style="width: 100%; max-width:500px">  
-Larry painted his white jag red in the 60's. This painting is from a gallery in Petosky, summer 2021.  
-
 
 
 ## Coloma, Michigan
