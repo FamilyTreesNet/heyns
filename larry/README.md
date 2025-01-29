@@ -170,7 +170,19 @@ Larry drove for [Dean the Beer Man](https://www.davenportfamily.com/obituary/Phi
 <img src="img/mary/MANU7022.jpeg" style="width: 100%; max-width:500px">
 Larry and Mary, 2022<br><br>
 
-To the top of our tree: [The Old Farmhouse of Heine](../../heine/)  
+
+Mary DeJong
+January 21, 1939 - October 25, 2024
+
+Mary was born in Grand Rapids, Michigan, the daughter of William and Helene (Rterink) Blouw. On June 3, 1960 she married Robert DeJong. She and Bob enjoyed camping and had several favorite destinations. with their two sons, Ken and Bob. Mary was a school bus driver for Martin, Otsego and Plainwell Schools and Transportation Supervisor for Schoolcraft Community Schools.
+
+Mary met Larry on Facebook several weeks after his wife Darlene passed away. Larry encourage Mary to retire. He sold his home in Coloma and together they lived in Mary's doublee-wide until moving into their retirement commnity.
+
+Mary loved visiting the Music Barn in Martin. She was an avid knitter and made several afgans while waiting for school teams to be done with their games.
+
+---
+
+To the top of our Heyns tree: [The Old Farmhouse of Heine](../../heine/)  
 
 [Larry's nephew Mark Bowers](../bowers/mark/)  
 
